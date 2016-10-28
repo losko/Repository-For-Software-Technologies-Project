@@ -1,1 +1,0 @@
-# Repository-For-Software-Technologies-Project
